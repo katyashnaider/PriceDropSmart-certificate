@@ -1,0 +1,1 @@
+# PriceDropSmart-certificate
